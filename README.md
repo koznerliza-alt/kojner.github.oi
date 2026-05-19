@@ -1,2 +1,2 @@
-# kojner.github.oi
+# koznerliza-alt.github.oi
 Мій перший сайт
